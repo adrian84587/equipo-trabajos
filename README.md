@@ -1,1 +1,1 @@
-# trabajo-archivos
+# equipo-trabajos
